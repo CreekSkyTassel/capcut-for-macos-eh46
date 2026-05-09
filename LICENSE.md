@@ -1,4 +1,4 @@
-
+exclusive CapCut for macOS Extension | version-history + video-trimming is the best CapCut for macOS extension, featuring version-history and video-trimming. Powerful, efficient,
 
 
 
